@@ -7,7 +7,7 @@ I am working as an engineer for WebApplication in Japan.
 * Former AirBone Japan Ground Self-Defense Force
 
 ### ■ Blog
-comming soon...
+Comming soon...
 
 
 ### ■ 🛠️&nbsp;&nbsp;Languages&nbsp;and&nbsp;Tools
